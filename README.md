@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Brok3n-M
+- 👀 I’m interested in new tech
+- 🌱 I’m currently learning how to save plants and planet
+- 📫 How to reach me -> near venice told my last professor
+- ⚡ Fun fact: leafsense.it
